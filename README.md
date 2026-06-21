@@ -1,2 +1,0 @@
-# tushar
-Software engineer 
